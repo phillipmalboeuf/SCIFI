@@ -1,0 +1,9 @@
+# Beach-side
+She lowered a titanium shovel in the sand and dug up a scoop of white dust, nano-millimetres in diameter. It was lighter and dryer than she expected. Things never felt quite right here, the waves had a green tint she never could quite place and the distant mountains had an other-worldly porous texture to them. She folded her shovel back in it's box, looked up at the closest peak across the tumultuous bay, and booted up her targeting frequencies.
+
+Starting from where the waves broke, a series of fluorescent-green lines and way-points where drawn with a few dives in the water and a long arch around the peaks. It read a 12.1km survey. She fired up her drone-buddy's rockets and it flew upright for a few meters until it dove back down to reach its green guide-lines. She always enjoyed the crazy dance this thing made to hurry back to its trajectories. Data started streaming in, her screens were filled with {sulfur levels and spectrometer lines}. She would've been overwhelmed but she could've guessed most of what she saw. She gazed at the cloud cover above and it reminded her of the last time she was on a beach.
+
+Back then, she was more aware of her legs and she felt strong winds brush her stomach. She's fond of that touch. Sand slipped between her toes and she listened to the waves. A pair of shoulders and a head covered with sand interrupted her. That boy-eternal, he enjoys his little moments. Interrupted again and brought back to the current stream of geo-data, she receives a: "From :poop_face:: Tu m'manques". *I miss you.*
+
+She turns her AI on, backs away from her VR set, pushes herself up from her desk-chair, and walks to her tall office windows. Through the tree trunks, she can see slivers of a ripply lake. She pulls down a keyboard on the capacitated glass and types back: "R: J'm'en fou complètement :p". *I certainly don't care :P.* She sighs and walks back to the drone waiting for her.
+
